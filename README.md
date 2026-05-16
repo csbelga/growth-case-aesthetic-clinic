@@ -1,4 +1,4 @@
-# Case, clínica de estética high-ticket no Rio de Janeiro
+# Case, clínica de estética high-ticket São Paulo
 
 Estudo de caso real, com dados anonimizados, de operação de growth em clínica de estética premium no Rio que estava perto de fechar e fechou quatro meses depois com um milhão e novecentos mil em contratos.
 
