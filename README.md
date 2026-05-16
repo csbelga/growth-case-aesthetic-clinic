@@ -76,4 +76,4 @@ Porque growth marketing real raramente é tecnologia. É raciocínio de negócio
 
 ## Contato
 
-Christian Belga, csbelga em gmail. LinkedIn em https://www.linkedin.com/in/christianbelga
+Christian Belga, csbelga em gmail. LinkedIn em https://www.linkedin.com/in/christian-belga-a1146a75
